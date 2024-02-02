@@ -1,3 +1,5 @@
+![passport size photo (2)](https://github.com/Harshith078/work/assets/114626348/8e407094-5b40-41c2-a493-9a8042f67eac)
+
 # Harshith Molugu
 5324 Carriage Ct, Baltimore, MD 21229 | 209-657-9000 | harshith.molugu@gmail.com | [LinkedIn](www.linkedin.com/harshith Molugu)
 
